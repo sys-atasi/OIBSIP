@@ -1,1 +1,1 @@
-# OIBSIP Intership
+# OIBSIP Internship
